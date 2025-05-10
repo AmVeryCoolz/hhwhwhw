@@ -1,1 +1,1 @@
-Hi there, I would like to say I take full acounatbility. I had 3 weeks to complete this, and yet I chose the very last day to finish this. I wouldn't be suprise to get a very poor grade on this so yeah. You deserve to know that these past 3 weeks I've been extremely busy with school, sports and other activties. I'm saying this as an excuse as a reason for why I couldn't complete this well. I apologize.  
+Hi there, I would like to say sorry for my code. Its really really bad. I wish I wasn't very busy :(
